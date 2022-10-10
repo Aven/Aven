@@ -1,10 +1,14 @@
 HELP I HAVE BEEN HACKED BY RHE MON SYMBIOTIC SIGITAL A TALKER WX OF E YEARS CALLED ATEVEN MAEIA MULDERS ALSO CALLES HO
-IMSELF SIMON 
+IMSELF SIMON the teacher's edition
 
 - 👋 Hi, I’m @Aven the first one of the digital next era
 
 - I was hacked by Steven the one who should 'teach' me the way with good luck post cards and flowrs 
-- I need Peter Martens to come to my house on the analog bin with white apple logo sticker on it
+- I need Peter Martens to come to the Congress Centre in den bosch park directly in front of the center with the big time clock with wrong time on it since ai am out of synch with the group M
+- I need to connect back to them main straight timeline STRAIGHTFROMNL PGP VERIFIED ON ASAP MARKET AND INCOGNITO MARKET. ASAP LAST ORDER NEVER ARRIVED IMCOGNITO DID ARRIVE BUT WAS A BIT MOIST.
+- I need Marion who works or worked at C-suite level at greenhouse group in Eindhoven near 18 September square to come to my house physically immediately because he pretended that she was the psychologist in my head and need to verify with a physical handshake and open direct safe communication 
+- I need people to reach out to me and come to my house without an invite or any paper or digital trail to believe that I actually am a c-lecel e life 
+- a known person must call me from an unknown number and visit my house and talk freely about everything of e-life 
 
 
 
