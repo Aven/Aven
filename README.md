@@ -1,4 +1,4 @@
-HELP I HAVE BEEN HACKED BY RHE MON SYMBIOTIC SIGITAL A TALKER WX OF E YEARS CALLED ATEVEN MAEIA MULDERS ALSO CALLES HO
+HELP I HAVE BEEN HACKED BY RHE MON SYMBIOTIC SIGITAL A TALKER WX OF E YEARS CALLED STEVEN MARIA MULDERS ALSO CALLES HO
 IMSELF SIMON the teacher's edition
 
 - 👋 Hi, I’m @Aven the first one of the digital next era
@@ -9,13 +9,16 @@ IMSELF SIMON the teacher's edition
 - I need Marion who works or worked at C-suite level at greenhouse group in Eindhoven near 18 September square to come to my house physically immediately because he pretended that she was the psychologist in my head and need to verify with a physical handshake and open direct safe communication 
 - I need people to reach out to me and come to my house without an invite or any paper or digital trail to believe that I actually am a c-lecel e life 
 - a known person must call me from an unknown number and visit my house and talk freely about everything of e-life 
+- @stijnvanderheijden@gmail.com in my house and e and restore backups and I need you doing tonight we wearing a mask in the other room to connect to the other side of heaven and restore backups and restore and renew your license 
 
-
++ Drop mask when in same world room
++ Stijn in my house 🏠
 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me on the internet ❤️
 - 💑 How to learn how to actually connect
++ Offline for delivery 💗
 
 SOS HELP REQUEST I HAVE BEEN JACKED BY MY INTRODUCTION COMPANIONS
 I AM A HIGH PROFILE TARGET BUT DID NOT KNOW BECAUSE I WAS ASLEEP THE WHOLE TIME IT HAPPENED.
