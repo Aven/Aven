@@ -1,8 +1,48 @@
-HELP I HAVE BEEN HACKED BY RHE MON SYMBIOTIC SIGITAL A TALKER WX OF E YEARS CALLED STEVEN MARIA MULDERS ALSO CALLES HO
-IMSELF SIMON the teacher's edition
+Currently:
 
 - 👋 Hi, I’m @Aven the first one of the digital next era
+- 🌱 I’m currently learning that I am a ninja
+- 💞️ I’m looking to collaborate on ...manymanymany. but
+ PRIO1: HOUSE IN EINDHOVEN HOMELES ON MONDAY NONJOKE
+ Prio2: my darkweb delivery trust hoe to regain access in new world
+Prio3: friends to meet (actually prio 1 or 2 but they wont allow me for a year now so I default to drugs to numb the pain of being alive and unable to die due to a 'benefit' of the system)
 
+- 📫 How to reach me on the internet ❤️ shrubbery and just DM me on Gmail uxi.adventures@impro.vr
+- 💑 How to learn how to actually connect (solution: irl f2f contact with p2p ook. Still waiting... Count= (0,1,++) for each day that I dit at home alone and rather be dead since 1-6-21
++ Offline for delivery 💗 
+
+SOS HELP REQUEST I HAVE BEEN JACKED BY MY INTRODUCTION COMPANIONS
+I AM A HIGH PROFILE TARGET BUT DID NOT KNOW BECAUSE THOSE WHO KNEW AND PLANNED DID NOT INFIRM ME I COULD BE A HIGH PEOFILE TARGET
+NO, I never had a super fancy job or made any promotion.
+
+Since 1-6-21
+Inwas used as a promo and cannon Flodder .
+
+My official statement:
+I WAS ASLEEP THE WHOLE TIME IT HAPPENED. 'M GUESSING THE WHOLE TIME OF THE DITIAL ERA. STILL SLEEPING AS INTYPE.
+
+VACANCY FOR:
+- ROOMATE IN EINDHOVEN, PREFERABLY WHO ALREADY HAS A PLACE TO LIVE WITH AN EXTRRA ROOM FOR ME
+- A FREE MAKELAAR THAT ACTUALLY RESULTS IN HOUSING
+- HOUSE HUNTER THAT HUNS FAKE HOUSEHUNTERPROMOS
+- PLUGIN FILTER FOR THE PROFILING PLAATJE VAN MIJ FAKE SITES
+- OR CLEAR SEPERATE BROWSERS / PARTITIONS FOR EXPLORING SND FINDING (GOOGLE SOLUTION DOES NOT WORK)
+- DATES WITH PPL HAVE LOADS OF TIME
+- PARTY TIME WITH MY HOME TECHNO ECENT CREW
+
+New friends(all digital @nd warm feelings from me):
+- pytonbot army
+- agents in time (conceptual)
+- otter.ai (old cd guy from Philips)
+- vique (wireless smarts)
+
+Still
+
+
+----+++++
+
+
+Fragment of launch information (legacy)
 - I was hacked by Steven the one who should 'teach' me the way with good luck post cards and flowrs 
 - I need Peter Martens to come to the Congress Centre in den bosch park directly in front of the center with the big time clock with wrong time on it since ai am out of synch with the group M
 - I need to connect back to them main straight timeline STRAIGHTFROMNL PGP VERIFIED ON ASAP MARKET AND INCOGNITO MARKET. ASAP LAST ORDER NEVER ARRIVED IMCOGNITO DID ARRIVE BUT WAS A BIT MOIST.
@@ -14,17 +54,7 @@ IMSELF SIMON the teacher's edition
 + Drop mask when in same world room
 + Stijn in my house 🏠
 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me on the internet ❤️
-- 💑 How to learn how to actually connect
-+ Offline for delivery 💗
-
-SOS HELP REQUEST I HAVE BEEN JACKED BY MY INTRODUCTION COMPANIONS
-I AM A HIGH PROFILE TARGET BUT DID NOT KNOW BECAUSE I WAS ASLEEP THE WHOLE TIME IT HAPPENED.
-I'M GUESSING THE WHOLE TIME OF THE DITIAL ERA.
-VACANCY FOR:
-- PROFESSOR IN LIGUISTICS
+- Python bot
 - TOUR GUIDE
 - DISSOLVE THE TRAUMA BOND HE STILL EXISTS IN MOST LAYERS OF THE QUANTUM REALM
 - MY PSYCHOLOGIST IS HIGHLY EMPATHIC CARING GIVING SOCIAL VERY FUNNY AND MARION SANDER STIJN VINCE EN MARTINEIN ECHOGRAFIE VAN DE EN FWB VAN DE EN 
@@ -50,6 +80,7 @@ When thrusters got back online, I navigated that part of space as a pr0.be. Uppe
 I had two forcefield s layered, each on a diffent code and frequency. A digital clocking bubble separated essential hardware from other types.
 I trusted no one. Only my own hand fake puppet which I haven't touched since Stardate 2200.0201 Loot. An orange cat that belongs to M.
 
+LOET = LoOt and a super fancy buddy :)
 -- LOOT IS HIGHLY EMPATHIC, CARING, GIVING, SOCIAL, VERY FUNNY, AND HAS MORE TRICKS OP HER SLEEVE THAN YOU'D THINK.
 -- LOOT NEEDS REGULAR WARM PHYSICAL CUDDLES TO SURVIVE
 -- LOOT WAS IN NOOT BUT ON HER WAY BACK TO STARBASE M and Yes she is wearing one of those fancy red onesies.
